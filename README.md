@@ -5,7 +5,7 @@
 </p>
 
 # **Gláucia Santana**
-<sub>*Estudante na area de tecnologia da Informação* Iniciando ultimo periodo na faculdade. </sub>
+<sub>*Estudante na area de tecnologia da Informação* Iniciando ultimo periodo na faculdade. Aracaju-SE. </sub>
 
 Como um estudante procuro manter-me focada, em busca de conhecimento e como consequencia encontrar oportunidades, sejam elas no conhecimento/aprendizagem e por oportunidades de trabalho na area estudada e areas afins, eu combino habilidades a serem adquiridas nesse primeiro momento com a programação. Capacidade de trabalhar em ambientes de equipe e atenção aos detalhes.
 
