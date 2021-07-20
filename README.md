@@ -9,7 +9,7 @@
 
 Como um estudante procuro manter-me focada, em busca de conhecimento e como consequencia encontrar oportunidades, sejam elas no conhecimento/aprendizagem e por oportunidades de trabalho na area estudada e areas afins, eu combino habilidades a serem adquiridas nesse primeiro momento com a programação. Capacidade de trabalhar em ambientes de equipe e atenção aos detalhes.
 
-* *Metas: Credencias a serem adiquiridas, estagiar como por consequência aprimorar, adquirir oportunidades e conhecimentos.*
+* *Metas: Adiquirir certificações e conclusão de cursos especificos para melhoria em tecnologias, estagiar e por consequência aprimorar, adquirir oportunidades e conhecimentos.*
 
 
 **Links:**
